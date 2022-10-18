@@ -1,1 +1,0 @@
-# fukuda-kota.githhub.io
